@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://beammoosescissors.github.io/todoist-for-macos-hs92/ ) |
  |---------------------|----------------------:|
 
 
